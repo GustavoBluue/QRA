@@ -1,0 +1,4 @@
+# QRA
+Lagrimas
+
+ e lagrimas
